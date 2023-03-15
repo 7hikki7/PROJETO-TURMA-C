@@ -1,2 +1,0 @@
-# PROJETO-TURMA-C
-ADS 2023 aula de git
