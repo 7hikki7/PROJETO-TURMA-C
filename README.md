@@ -5,3 +5,4 @@
 ## experiênias 
 
 - Magazine Luiza
+- Americanas 
