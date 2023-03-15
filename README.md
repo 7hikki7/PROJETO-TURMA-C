@@ -6,3 +6,5 @@
 
 - Magazine Luiza
 - Americanas 
+
+--- 
