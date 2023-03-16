@@ -11,6 +11,8 @@
 
 - Magazine Luiza
 - Americanas 
+- Desempregado 
+- Main Kyan
 
 --- 
 
