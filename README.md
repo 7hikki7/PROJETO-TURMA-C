@@ -11,6 +11,8 @@
 
 - Magazine Luiza
 - Americanas 
+- Palhaço do IT 
+- Prata no LOL
 
 --- 
 
